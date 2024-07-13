@@ -11,4 +11,4 @@ Contact Me
 
 Please click on any of this text to my linkedin, Github or download my resume
 
-     Linkedin 			 |  	     Github 		   |  		  Resume File 			
+Linkedin 		|  	     Github 		 |  		  Resume File 			
